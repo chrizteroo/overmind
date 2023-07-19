@@ -28,3 +28,8 @@ my personal github is github.com/coladimeji
 <img width="1440" alt="Screenshot 2023-07-19 at 3 38 04 PM" src="https://github.com/chrizteroo/split-or-steal/assets/108843788/361ac902-45c3-4a3c-9178-3fdd53376ae4">
 
 
+<img width="1440" alt="Screenshot 2023-07-19 at 1 18 56 PM" src="https://github.com/chrizteroo/split-or-steal/assets/108843788/de8edf26-870c-4ac3-9bd8-4fb517bc3d61">
+
+<img width="1440" alt="Screenshot 2023-07-19 at 1 19 46 PM" src="https://github.com/chrizteroo/split-or-steal/assets/108843788/c0ed9af4-1ee2-4d4b-aaf2-9733577f3696">
+
+
